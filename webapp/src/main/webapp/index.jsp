@@ -8,4 +8,15 @@
 <h1> praise be to God Almighty!!!</h1>
 <h1> This seems to be worst moment of my life</h1>
 <h1> But i know i'm strong and i'll pull through...</h1>
+
+
+<h1> My trust is in God</h1>
+<h1> My trust is in God</h1>
+<h1> My trust is in God</h1>
+<h1> My trust is in God</h1>
+<h1> My trust is in God</h1>
+<h1> My trust is in God</h1>
+<h1> My trust is in God</h1>
+<h1> My trust is in God</h1>
+<h1> My trust is in God</h1>
 <h1> My trust is in God</h1>
